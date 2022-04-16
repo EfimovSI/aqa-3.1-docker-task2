@@ -1,0 +1,1 @@
+![](../../../Pictures/Screenshots/Снимок экрана (62).png)
